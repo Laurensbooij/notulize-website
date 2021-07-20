@@ -1,1 +1,1 @@
-Check out this project at: https://notulize.com
+See this project at: https://notulize.com
